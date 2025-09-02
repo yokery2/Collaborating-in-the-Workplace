@@ -1,5 +1,5 @@
 
-# Power of 2: How to Make the Most of Your Partnerships at Work and in Life
+# Power of 2 How to Make the Most of Your Partnerships at Work and in Life
 > 2 的力量：如何在工作和生活中最大化你的合作关系
 
 RODD WAGNER and GALE MULLER, ph.d.
